@@ -1,0 +1,2 @@
+# Why-Gold-Loan-Best-option-for-you
+For Indians, gold loans are not a new phenomenon. From the beginning of finance, it has been the key source of lending and raising funds. Its roots can be traced many centuries when it was the primary means of barter and trade. The impression that gold financing companies want to get across is that they can safely store your gold or jewelry. Conversely, they want you to pledge them to get a loan.
